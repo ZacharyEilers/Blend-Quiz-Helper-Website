@@ -1,1 +1,0 @@
-# Blend-Quiz-Helper-Website
